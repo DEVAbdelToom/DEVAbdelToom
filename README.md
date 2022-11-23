@@ -6,7 +6,7 @@
 
 I am a Dev on Jungle club
 
-Got To Jungle-club.wixsite.com/jungle
+Got To Jungle-club.wixsite.com/jungle-club
 
 and more sites
 
