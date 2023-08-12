@@ -8,3 +8,4 @@ I'm Alphabet, a passionate middle school student who loves to dive into the worl
 
 Let's make the coding world a more vibrant and creative place together! 🚀🌟
 
+https://discord.com/users/723299519403393075
